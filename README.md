@@ -1,2 +1,3 @@
 # one
 And here it began...
+A journey has begun,an adventure started but what if tell you that the end is already decided. What if I tell you how is it all going to end? What then?Is the journey still worth it?Would it matter or is it just success that defines everything?Anyways,the first step is already taken and the only direction left is forward.Let's do this.
